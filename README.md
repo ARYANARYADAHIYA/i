@@ -1,4 +1,2 @@
-gfnvnv# idfefeccdfgf
-fdscxcnnngxngfngfbghgfbfgf
-xcxzcxcvcvcbbbggg
-rhfghknfdgjdnvgfnvbgfjcnfgrffbbfdfvb
+
+this reposite was created to unlock badges
